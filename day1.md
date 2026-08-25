@@ -1,0 +1,1 @@
+ima keep it a buck, today was uneventful in the CybSec adventure. it was an eventful and busy day in my... life adventure though. first day of classes in the fall26 semester, and i had work, literally 45 mins after my classes ended. my job keeps me until 11pm. so uh, yeah. tough luck. the plan remains. practice OTW, and python. Hopefully i can get more reps tomorrow. 
